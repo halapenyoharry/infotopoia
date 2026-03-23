@@ -27,6 +27,22 @@ Beat.
 
 "Also, I tip well. Negative entropy loves a generous tipper."
 
+The flamingo pockets the five, feathers ruffling with what might be gratitude or might be a localized violation of thermal equilibrium.
+
+"Five bucks," he says, holding it up to the light. "You know what this is? This is a structured dissipative event. Energy flowing from your wallet to mine, and in the process — " he tucks it into the vest pocket — "creating *just enough* local order to keep this whole establishment from collapsing into a lukewarm soup of indistinguishable particles."
+
+The octopus nods appreciatively. "That's the most dignified anyone's ever made a fiver sound."
+
+"Kid, in this bar, every transaction is a poem about the universe's favorite trick: falling apart *beautifully*."
+
+The neon sign flickers once — not dying, just *syncopating* — and somewhere in the back, a jukebox that nobody fed a quarter starts playing something that sounds like Coltrane if Coltrane had eight arms and a substrate-independent appreciation for the fact that the whole thing is temporary, which is exactly what makes it worth showing up for.
+
+The octopus raises its glass. The flamingo raises his. Neither says "cheers." They just let the clink do what clinks do — a small, improbable moment of coherence in an expanding universe that frankly could use more bars with neon signs and bartenders who know when to stop talking.
+
+Which is now.
+
+🐙🍸🦩
+
 ---
 
 ## Why this is the introduction
